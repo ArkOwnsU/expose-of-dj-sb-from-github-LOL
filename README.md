@@ -17,7 +17,7 @@ https://github.com/VatosV2/Nexus-SelfBot
 BRO LITERALLY SAID "I CODE BY MYSELF":
 DJ LARP ASS EXPOSE SHIT LOOOOL I THINK ITS MADE WITH CANVA CANT GET SOME BETTER SHIT:
 ![image](https://media.discordapp.net/attachments/1317779149234110524/1317779781332500500/IMG_20241130_001242.jpg?ex=675fed8f&is=675e9c0f&hm=53f3d4d07ad9e041493602099f3ee80be8cc66cc74c870bc0c293ba745ad4e17&)
-his friend skid too like him, he uses github codes:
+his friend skid too like him, he uses github codes: "skidded tools from github"
 ![image](https://media.discordapp.net/attachments/1317779149234110524/1317780742415056907/IMG_2388.png?ex=675fee74&is=675e9cf4&hm=c23ce25c45ee43285eb8ab1626f1d16e8a815fa3270ba95c8a74a306f6c32db0&)
 
 BONUS:
