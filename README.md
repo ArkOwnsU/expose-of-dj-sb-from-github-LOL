@@ -18,8 +18,8 @@ BRO LITERALLY SAID "I CODE BY MYSELF":
 DJ LARP ASS EXPOSE SHIT LOOOOL I THINK ITS MADE WITH CANVA CANT GET SOME BETTER SHIT:
 ![image](https://media.discordapp.net/attachments/1317779149234110524/1317779781332500500/IMG_20241130_001242.jpg?ex=675fed8f&is=675e9c0f&hm=53f3d4d07ad9e041493602099f3ee80be8cc66cc74c870bc0c293ba745ad4e17&)
 bro said our member skids LOOOOL WAIT A BIT.....
-his friend skid too like him, he uses github codes: "skidded tools from github"
-![image](https://media.discordapp.net/attachments/1317779149234110524/1317780742415056907/IMG_2388.png?ex=675fee74&is=675e9cf4&hm=c23ce25c45ee43285eb8ab1626f1d16e8a815fa3270ba95c8a74a306f6c32db0&)
+his friend skid too like him, he uses github codes: "skidded tools from github":
+![image](https://media.discordapp.net/attachments/1313325112422043689/1317779105961213984/IMG_2388.png?ex=67672d2e&is=6765dbae&hm=38d1aaa88c5aa948d6e738c10a6c6fa12ce0770e51fb6c4dd89ca84cdd35c542&)
 
 BONUS:
 DJ LARP SPECIAL VIDEO: ![video](https://images-ext-1.discordapp.net/external/iZNr3xqJFNsREoYexM8LiNMBc1Rz5oOUaVOWlnxwNMc/https/media.tenor.com/Mr83YIdluSMAAAPo/skid-can%2527t-code.mp4)
