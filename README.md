@@ -52,38 +52,36 @@ Creator: NyOO
 OLD EXPOSE IS FUCKED UP , FUCK IT, NEW EXP0SE ITS HERE STUPID CUNT!
 
 ("FAKE FUNCTION" YOU STUPID LITTLE BITCH AND UR LARPING HIS NAME LMFAOAA)
-https://media.discordapp.net/attachments/1348315276441292803/1348315333882151034/Screenshot_20250309_172242_Discord.png?ex=67cf0402&is=67cdb282&hm=abfc3a4d5c20b7230c1fd96bf232d6853ff7d7b3a5cdf3815c8e8997bcfadb19&
+![image](https://media.discordapp.net/attachments/1348315276441292803/1348315333882151034/Screenshot_20250309_172242_Discord.png?ex=67cf0402&is=67cdb282&hm=abfc3a4d5c20b7230c1fd96bf232d6853ff7d7b3a5cdf3815c8e8997bcfadb19&)
 
 also using womp womp jokes in 2025 is so retarded, you know? LMFAOAA
 
 
 we have real dj (owner bail):
-https://media.discordapp.net/attachments/1348315276441292803/1348316011631345774/Screenshot_20250309_172441_Discord.png?ex=67cf04a3&is=67cdb323&hm=b8396a2ed1e812e782bdb846c524aa1c77fd5582b2596e948ec322796315107f&
+![image](https://media.discordapp.net/attachments/1348315276441292803/1348316011631345774/Screenshot_20250309_172441_Discord.png?ex=67cf04a3&is=67cdb323&hm=b8396a2ed1e812e782bdb846c524aa1c77fd5582b2596e948ec322796315107f&)
 
 
 you are my sex slave LOOOOOL
 
 
 I'm rich as FUCK and you have a poor DADDY
-https://media.discordapp.net/attachments/1322083020332728383/1322417843181981696/AC7C575E-7204-4C74-B208-90091BC21AF3.mov?ex=67ce6797&is=67cd1617&hm=783e3237722a799f9d53e946da13f8826a3e3c7d8fc832b8e059d88f5f9839cf&
+![video](https://media.discordapp.net/attachments/1322083020332728383/1322417843181981696/AC7C575E-7204-4C74-B208-90091BC21AF3.mov?ex=67ce6797&is=67cd1617&hm=783e3237722a799f9d53e946da13f8826a3e3c7d8fc832b8e059d88f5f9839cf&)
 I typed MY NAME ON THIS LOOOL @AYOFULLS
 
 your bot has a fake ping.
-https://media.discordapp.net/attachments/1323828555771154465/1342825607976845393/Screenshot_20250222_134918_Discord.png?ex=67ced1cd&is=67cd804d&hm=09529d2cc3fc90052e52631daa077ef2ee8a17bb901a04b99efeb948e6b7fcf6&
+![image](https://media.discordapp.net/attachments/1323828555771154465/1342825607976845393/Screenshot_20250222_134918_Discord.png?ex=67ced1cd&is=67cd804d&hm=09529d2cc3fc90052e52631daa077ef2ee8a17bb901a04b99efeb948e6b7fcf6&)
 
 only 1 star rating cuz ur ass
-https://media.discordapp.net/attachments/1323828555771154465/1342539794588106822/IMG_3365.png?ex=67ce705e&is=67cd1ede&hm=73c5abbf74a47dd1a73bd64b9adf90e7a7a3ec14acbc93141b1788ebe3ad580d&
+![image](https://media.discordapp.net/attachments/1323828555771154465/1342539794588106822/IMG_3365.png?ex=67ce705e&is=67cd1ede&hm=73c5abbf74a47dd1a73bd64b9adf90e7a7a3ec14acbc93141b1788ebe3ad580d&)
 
 LOOOOL
-https://media.discordapp.net/attachments/1348315276441292803/1348325606886084629/1348324481399001118remix-1741536269807.png?ex=67cf0d93&is=67cdbc13&hm=55bd725314e3317da5adeb9983f4d8c6523f172582c3464c177dc47b154aac21&
+![image](https://media.discordapp.net/attachments/1348315276441292803/1348325606886084629/1348324481399001118remix-1741536269807.png?ex=67cf0d93&is=67cdbc13&hm=55bd725314e3317da5adeb9983f4d8c6523f172582c3464c177dc47b154aac21&)
 bonus:
-https://media.discordapp.net/attachments/1348315276441292803/1348326864829022208/1348326587581337683remix-1741536571925.png?ex=67cf0ebf&is=67cdbd3f&hm=43ee679b76594665121dc90606421e2ba6c59035ee26c61423f71a36aceb1114&
+![image](https://media.discordapp.net/attachments/1348315276441292803/1348326864829022208/1348326587581337683remix-1741536571925.png?ex=67cf0ebf&is=67cdbd3f&hm=43ee679b76594665121dc90606421e2ba6c59035ee26c61423f71a36aceb1114&)
 
 if you have following users who think they are djs, they are fake.
---------------------
 -> 🤡 yourdeath09.py
 -> 🤡 cxxvx.xyz
---------------------
 
 THE ONLY Real DJ™️ IS:  cuttingherthroat
 
