@@ -65,7 +65,7 @@ you are my sex slave LOOOOOL
 
 
 I'm rich as FUCK and you have a poor DADDY
-![video](https://media.discordapp.net/attachments/1322083020332728383/1322417843181981696/AC7C575E-7204-4C74-B208-90091BC21AF3.mov?ex=67ce6797&is=67cd1617&hm=783e3237722a799f9d53e946da13f8826a3e3c7d8fc832b8e059d88f5f9839cf&)
+![image](https://media.discordapp.net/attachments/1322083020332728383/1322417843181981696/AC7C575E-7204-4C74-B208-90091BC21AF3.mov?ex=67ce6797&is=67cd1617&hm=783e3237722a799f9d53e946da13f8826a3e3c7d8fc832b8e059d88f5f9839cf&)
 I typed MY NAME ON THIS LOOOL @AYOFULLS
 
 your bot has a fake ping.
@@ -81,6 +81,7 @@ bonus:
 
 if you have following users who think they are djs, they are fake.
 -> 🤡 yourdeath09.py
+
 -> 🤡 cxxvx.xyz
 
 THE ONLY Real DJ™️ IS:  cuttingherthroat
