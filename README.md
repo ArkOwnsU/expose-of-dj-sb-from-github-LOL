@@ -81,6 +81,10 @@ LOOOOL
 bonus:
 ![image](https://media.discordapp.net/attachments/1348315276441292803/1348326864829022208/1348326587581337683remix-1741536571925.png?ex=67cf0ebf&is=67cdbd3f&hm=43ee679b76594665121dc90606421e2ba6c59035ee26c61423f71a36aceb1114&)
 
+nigga said the truth:
+
+![image](https://media.discordapp.net/attachments/1348315276441292803/1348330674419011624/Screenshot_20250309_133303_Discord.png?ex=67cf124b&is=67cdc0cb&hm=9c6cb2169f7a9539f4473f350299de22ffc62a6e90019df703987a8f83364a89&)
+
 if you have following users who think they are djs, they are fake.
 -> 🤡 yourdeath09.py
 
