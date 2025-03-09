@@ -65,7 +65,6 @@ you are my sex slave LOOOOOL
 
 
 I'm rich as FUCK and you have a poor DADDY
-![image](https://media.discordapp.net/attachments/1322083020332728383/1322417843181981696/AC7C575E-7204-4C74-B208-90091BC21AF3.mov?ex=67ce6797&is=67cd1617&hm=783e3237722a799f9d53e946da13f8826a3e3c7d8fc832b8e059d88f5f9839cf&)
 ![image]
 (https://media.discordapp.net/attachments/1348315276441292803/1348329335399911504/Screenshot_20250309_181907_Discord.png?ex=67cf110c&is=67cdbf8c&hm=71c70e91e55321341b808dd577ca7b625df8897c75074f31ca36063ba0bd8f2c&)
 edited up cuz image fucked
